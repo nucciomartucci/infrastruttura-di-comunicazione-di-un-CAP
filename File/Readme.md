@@ -1,1 +1,1 @@
-
+All'interno di questa cartella si possono confronare ed analizzare i due progetti: il primo scritto in lingua spagnola e consgenato all'UPC, il secondo tradotto nella mia lingua originale, cioè l'italiano.
